@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @JadAl-Awar
+- 👀 I’m interested in CYberSecurity
+- 🌱 I’m currently learning Computer Science at LAU
+- 📫 How to reach me 78 963 813
